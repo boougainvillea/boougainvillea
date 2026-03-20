@@ -2,7 +2,7 @@
 
 ***
 
-**Latim.** 
+**Latin.** 
 
 <img src="https://files.catbox.moe/8i00k2.gif" alt="alt text" width="xxx">
 
