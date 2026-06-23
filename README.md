@@ -13,7 +13,7 @@ Today, Pierrot remains an enduring cultural icon whose influence can still be se
 
 <img src="https://64.media.tumblr.com/0de8720cd8d09bab2e431275dcd900e0/141ce20fa5509dc6-b7/s1280x1920/90ac1e854c6c35c962f7bfd9b6824e8ff900c6da.pnj" alt="alt text" align="center" width="xxx">
 
-<img src="https://64.media.tumblr.com/2d60e6982d11ce9418f4690a6f3206e9/479c569bf4098b6d-28/s1280x1920/2068df53e6ac7db905973184019390c9d7907b11.pnj" alt="alt text" align="left" width="450"> <img src="https://64.media.tumblr.com/3bc537c96442e4dbf41e0eb7a31e03cc/f46154a500c4452c-57/s500x750/385beea8352ad10512a983500060dd24c231e934.pnj" alt="alt text" align="right" width="xxx">
+<img src="https://64.media.tumblr.com/7746add112afbc8a4383cecbd17a5cb9/473cb7d99dd6bf5d-c8/s100x200/66316082b00c763730d82479bd494e1ccc2d349a.pnj" alt="alt text" align="center" width="xxx"> <img src="https://64.media.tumblr.com/44d1350f864c5609adc3a60e203479a0/8351a5555c0684b1-22/s100x200/b5b3761eb24d5b4856fdc8091dd7a22ba7399a90.gifv" alt="alt text" align="center" width="xxx"> 
 
 <img src="https://64.media.tumblr.com/0de8720cd8d09bab2e431275dcd900e0/141ce20fa5509dc6-b7/s1280x1920/90ac1e854c6c35c962f7bfd9b6824e8ff900c6da.pnj" alt="alt text" align="center" width="xxx">
 
